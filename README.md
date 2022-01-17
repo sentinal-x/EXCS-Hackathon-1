@@ -1,3 +1,5 @@
+help we are being sued :(
+
 # EXCS-Hackathon-1
 
 Pierre deleted the work we did in this Hackathon. It's okay though as it wasn't very good.
